@@ -1,1 +1,0 @@
-# Abu-Majid.github.io
